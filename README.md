@@ -1,7 +1,7 @@
-# hello-world
-Just another repository
+this code suck
 
-beep boop bop
-cringe
+beep boop boppers
+cringe man
 
 Kyle
+pepelaugh
